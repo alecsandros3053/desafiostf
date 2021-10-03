@@ -1,1 +1,1 @@
-**Blotter Automação Web**
+**Stefanini Automação Web**
